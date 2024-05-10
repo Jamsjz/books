@@ -1,1 +1,0 @@
-# Magnetic Properties of Materials
